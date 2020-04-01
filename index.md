@@ -1,14 +1,6 @@
 ## Alistair Grom
 
  - I guess i'll get back to making this
- - ![Image] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fknowyourmeme.com%2Fmemes%2Fpepe-silvia&psig=AOvVaw1rZBVFFhVLKzGmqkfQgYLr&ust=1585855636372000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKDW5uD6x-gCFQAAAAAdAAAAABAE)
-
-
-
-
-
-
-
 
 
 
